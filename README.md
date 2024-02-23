@@ -1,3 +1,3 @@
-aqui e o paulo\matheus nm26
+aqui e o paulo
 eu gosto de informatica
-e gosto nde faze umas negociacaao
+e gosto de faze umas negociacao
